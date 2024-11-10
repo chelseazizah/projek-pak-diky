@@ -1,1 +1,1 @@
-# projek-pak-diky
+# projek-pak-dicky
